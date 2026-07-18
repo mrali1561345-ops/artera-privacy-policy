@@ -1,0 +1,1 @@
+# artera-privacy-policy
